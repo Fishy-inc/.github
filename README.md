@@ -5,6 +5,6 @@ What we do:
 we have created a youtube channel based of fish videos, this channel comes with a 24/7 live stream and may entertaining fish videos daily. we post these videos using a video reposter for fast and easy access.
 
 What are our aims:
-we hope to become something mang people come to watch daily and enjoy, like and subscribe.
+we hope to become something mang people come to watch daily, enjoy, like and subscribe.
 
 
